@@ -9,3 +9,6 @@ All of this was a very different learning for each of the hopefuls, something un
 To me, MARVEL is an example of how much difference the sheer force of will behind a good idea can make. And how, in a cut-throat world, creating an approachable, hospitable environment for everyone is a very different feeling, something that fills me with faith that MARVEL will be in a legacy in its own.  
   
   Life changing things needn't always be grand gestures, i guess.
+  
+  ![marvel](https://user-images.githubusercontent.com/97616511/174445330-60adb369-ba79-4761-b998-71959b6405e0.png)
+
